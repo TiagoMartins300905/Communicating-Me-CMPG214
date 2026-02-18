@@ -1,2 +1,2 @@
 # Communicating-Me
-This repository is about describing myself and who I am
+I am Tiago Martins, I am a typical car guy who enjoys long gaming sessions, old animes and drawing.
